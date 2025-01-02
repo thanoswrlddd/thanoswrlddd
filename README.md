@@ -1,3 +1,4 @@
+![!](https://github.com/user-attachments/assets/692291fb-5308-41ce-8a8b-4a0bae845348)
 - 🥀 Hi, I’m till/pip! erghhh im kinda new 2 this so it might look bad on my pagee but heh! (check outt strawpage!) 
 -  fandoms in in alnst,fnaf,coldfront,deadplate,sp,hp,squidgame,hsr,gi,mouthwasing,jjk,bluelock,kny and more unlisted!
 -  my discord is piperoni__  !! 
